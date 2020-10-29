@@ -1,0 +1,2 @@
+# idealsoft.uz
+softlar
